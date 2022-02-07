@@ -12,4 +12,4 @@ La paix dans le monde
 
 On s'en fout
 
-Baptiste > noemie
+Baptiste < Noemie QUEEN
