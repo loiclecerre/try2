@@ -8,6 +8,4 @@ droit de réponse
 
 AhhhhhhhA
 
-Batiste surcoté
-
-+1
+La paix dans le monde
